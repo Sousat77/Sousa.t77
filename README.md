@@ -1,4 +1,4 @@
-Boas vindas ao meu perfil 💙
+Boas vindas ao meu perfil 
 Eu sou o Thayson 
 
 Estou estudando na Alura
